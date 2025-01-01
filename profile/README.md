@@ -1,0 +1,1 @@
+**Kanach Yerevan** (Green Yerevan) is an informal voluntary community aimed at protecting and preserving the green areas of Yerevan, the capital of Armenia. The community was founded in 2023 and has since been involved in various activities to raise awareness about environmental issues and promote sustainable development in the city.
